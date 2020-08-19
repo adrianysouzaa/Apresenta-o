@@ -5,6 +5,7 @@ Bem vindo (a) ao meu github, aqui deixo alguns de meus projetos feitos!
 
 
 Você pode me encontrar e falar comigo, pelas minhas redes sociais 💕 
+
 Estão disponivel no link abaixo :point_down:
 
 [![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/adrianysouzaa/)](https://www.linkedin.com/in/adrianysouzaa) <a target="_blank" href="https://www.instagram.com/adrianysouzaa/">
