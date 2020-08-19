@@ -1,7 +1,7 @@
 ### Oi, me chamo Adriany :raising_hand: 
 
 Bem vindo (a) ao meu github, aqui deixo alguns de meus projetos feitos!
-<p>Moro em Manaus, atualmente sou aluna finalista do Curso de Engenharia da Computação, sou geminiana melhor signo inclusive, amo andar de bike e ter passeios de encontro coma  natureza para relaxar e me sentir renovada, curto muito assistir filmes/documentários sobre guerras, sou uma jovem que está sempre atrás de aprender coisas novas. Tenho interesse em tecnologias que contribuem para aprendizagem significativa. 
+<p>Moro em Manaus, atualmente sou aluna finalista do Curso de Engenharia da Computação, sou geminiana melhor signo inclusive, amo andar de bike e ter passeios de encontro com a  natureza para relaxar e me sentir renovada, curto muito assistir filmes/documentários sobre guerras, sou uma jovem que está sempre atrás de aprender coisas novas. Tenho interesse em tecnologias que contribuem para aprendizagem significativa. Acho que isso That's all folks!  
 
 
 Você pode me encontrar e falar comigo, pelas minhas redes sociais 💕 
