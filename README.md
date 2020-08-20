@@ -6,7 +6,7 @@ Bem vindo (a) ao meu github, aqui deixo alguns de meus projetos feitos!
 
 Você pode me encontrar e falar comigo, pelas minhas redes sociais 💕 
 
-:point_down: Estão disponivel aqui embaixo :point_down:
+:point_down: Estão disponíveis aqui embaixo :point_down:
 
 <center>
 
