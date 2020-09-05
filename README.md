@@ -1,3 +1,8 @@
+<p align="center">
+ <img width="100%" src="https://github.com/adrianysouzaa/adrianysouzaa/blob/master/codigo.png" />
+</p>
+
+
 ### Oi, me chamo Adriany :raising_hand: 
 
 Bem vindo(a) ao meu github, aqui deixo alguns de meus projetos feitos!
