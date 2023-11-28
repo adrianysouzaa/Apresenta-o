@@ -6,8 +6,7 @@
 ### Oi, me chamo Adriany :raising_hand: 
 
 Bem vindo(a) ao meu github, aqui deixo alguns de meus projetos!
-<p>Eu moro em Manaus, sou formada em Engenharia da Computação. Sou uma jovem, que está sempre, em busca de aprender coisas novas. Tenho interesse em tecnologias que contribuem para aprendizagem significativa. Acho que isso That's all folks!😄😄😄
-
+<p>Eu moro em Manaus, sou formada em Engenharia da Computação. Sou uma jovem, que está sempre, em busca de aprender coisas novas. Tenho interesse em tecnologias que contribuem para aprendizagem significativa. 
 
 Você pode me encontrar e falar comigo, pelas minhas redes sociais 💕 
 
